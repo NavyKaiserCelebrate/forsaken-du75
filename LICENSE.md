@@ -1,4 +1,4 @@
-
+Get ahead in forsaken with vip Scripts for forsaken, featuring invisibility and no cooldown. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
